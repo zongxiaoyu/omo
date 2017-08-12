@@ -1,0 +1,2 @@
+# omo
+new github account
